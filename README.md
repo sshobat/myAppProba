@@ -1,2 +1,0 @@
-# myAppProba
-Proba sa YT.
